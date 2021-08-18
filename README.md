@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning .. to master computer coding skills.
 - 💞️ I’m looking to collaborate on ...anything
 - 📫 How to reach me ...via email
-
+learning something new everyday is soooo much fun!
 
 
